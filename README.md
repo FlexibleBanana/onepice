@@ -21,12 +21,14 @@ The Thousand Sunny is the second ship of the Straw Hat Pirates, built after the 
 
 
 
-## My Everything 
-### by Ariana Grande
+# STRAW HAT MEMBERS
+### Monkey D. Luffy (Captain)
 
-You can listen to the [My Everything Album](https://youtube.com/playlist?list=OLAK5uy_lcAQW0bAGPBo6D-NxZt37-Zh7DPfQb96g) on YouTube and enjoy her music!
+![](https://www.fifteenlovers.com/wp-content/uploads/2021/03/monkey-d-luffy-quotes.png | width=100)
 
-**'Problem'** is the first song that I had first heard from her and it is my favorite song in this album. The nostalgia this song brings back is indescribable. 2014 was in fact one of the best years for pop music this century. As of February 22, 2022, it has 1.3 billion views.     
+Monkey D. Luffy, also known as "Straw Hat Luffy" and commonly as "Straw Hat", is the main protagonist of the manga and anime, One Piece. He is the founder and captain of the increasingly infamous and powerful Straw Hat Pirates, as well as one of its top fighters.His lifelong dream is to become the Pirate King by finding the legendary treasure left behind by the late Gol D. Roger. He believes that being the Pirate King means having the most freedom in the world
+
+     
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/iS1g8G_njx8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
