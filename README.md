@@ -1,16 +1,23 @@
-# Ariana Grande Albums
+# ONE PIECE STRAW HAT MEMBERS
 
-I have been a fan of Ariana Grande since I don't know when. She is one of my favorite female artists out there and her songs are always a bop. I listen to her songs every day. I wish that she would have a concert here in the Philippines after the pandemic. She is currently taking a break from making music but I hope she would continue to make more music and I hope she wouldn't end up like Rihanna. Anyway, here are some of her albums and my favorite songs from her albums;
+The Straw Hat Pirates, also known as the Mugiwara Pirates, Straw Hat Crew or simply the Straw Hats, are an infamous and incredibly powerful rising pirate crew that originated from the East Blue, but have various members from different areas. They are the main focus and protagonists of the manga and anime One Piece, and are led by the main protagonist, Monkey D. Luffy.
 
 
-## Yours Truly 
-### by Ariana Grande
+## Going Merry
+### Built by Merry (Syrup Village arc)
 
-You can listen to the [Yours Truly Album](https://www.youtube.com/playlist?list=OLAK5uy_kNoCOQMMgb8TrlcSbZClOMvKEP10A0nPs) on YouTube and enjoy her music!
+<iframe width="560" height="315" src="https://www.youtube.com/watch?v=hLyZbDfdZaw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-**'The Way'** is my favorite song in this album. Ariana has been through a lot from her days on Nickelodeon to everything she has now. I don't listen to Mac Miller's music but he will be forever missed. Rest in Forever Peace Mac. As of February 02, 2022, it has 437 million views.
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_sV0S8qWSy0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+The Going Merry was the first full-sized ship owned by the Straw Hat Pirates, a caravel that served as their main transportation through the East Blue, and the Grand Line up until Water 7. It was often affectionally referred to as simply Merry by the crew.
+
+## Thousand Sunny 
+### Build by Franky (Water 7 arc)
+
+The Thousand Sunny is the second ship of the Straw Hat Pirates, built after the Going Merry was destroyed. It is often referred to as Sunny by the crew.
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/watch?v=9xTlQdJUx_c" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 
 
